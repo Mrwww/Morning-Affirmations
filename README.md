@@ -8,7 +8,7 @@ Spend a few moments to improve your outlook in life.
 Visit https://powerfulaffirmation.com for more
 https://powerfulaffirmation.com/wealt... 
 Subscribe link
-http://www.youtube.com/channel/UCmK1i...
+http://www.youtube.com/channel/UCmK1iNl6ws5Q7uuXz7sfrZg?sub_confirmation=1
 
 =========================
 
